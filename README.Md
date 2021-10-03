@@ -1,2 +1,0 @@
-# Denemeler
-selam bualtıpıya dokunma
