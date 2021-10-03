@@ -1,1 +1,0 @@
-Bu dosyaya dokunma ebeninki
